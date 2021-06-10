@@ -7,4 +7,9 @@ Mostly active : priyankadutta.ddc@gmail.com
 Less Active : duttachoudhury.devank@gmail.com
 Outlook : (coming soon p.s. i forgot)
 - 📱 My number DON'T CALL PLS : +91 96431 03798
-- 🎮 Games I like to play : Fortnite : ID add me --> Devank Is A Pro
+- 🎮 Games I like to play :
+-  Fortnite : ID add me --> Devank Is A Pro
+-  MineCraft
+-  Roblox
+-  Among Us
+
