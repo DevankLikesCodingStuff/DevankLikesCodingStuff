@@ -8,8 +8,9 @@ Less Active : duttachoudhury.devank@gmail.com
 Outlook : (coming soon p.s. i forgot)
 - 📱 My number DON'T CALL PLS : +91 96431 03798
 - 🎮 Games I like to play :
--  Fortnite : ID add me --> Devank Is A Pro
+-  Fortnite 
 -  MineCraft
 -  Roblox
 -  Among Us
-
+YouTube Channels
+- Devank The Amazing Creator : https://www.youtube.com/channel/UCeOXLW4ROJTdO380wTT-RZQ
