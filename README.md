@@ -12,5 +12,5 @@ Outlook : (coming soon p.s. i forgot)
 -  MineCraft
 -  Roblox
 -  Among Us
-YouTube Channels
+-  YouTube Channels
 - Devank The Amazing Creator : https://www.youtube.com/channel/UCeOXLW4ROJTdO380wTT-RZQ
