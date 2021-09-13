@@ -5,7 +5,7 @@
 Gmail 
 Mostly active : priyankadutta.ddc@gmail.com 
 Less Active : duttachoudhury.devank@gmail.com
-Outlook : (coming soon p.s. i forgot)
+Outlook : devank.duttachoudhury@outlook.com
 - 📱 My number DON'T CALL PLS : +91 123456789
 - 🎮 Games I like to play :
 -  Fortnite 
