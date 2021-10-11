@@ -11,6 +11,6 @@ Outlook : devank.duttachoudhury@outlook.com
 -  Fortnite 
 -  MineCraft
 -  Roblox
--  Among Us
--  YouTube Channels
+-  Valorant
+YouTube Channels
 - Devank The Amazing Creator : https://www.youtube.com/channel/UCeOXLW4ROJTdO380wTT-RZQ
