@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DevankLikesCodingStuff aka Devank
+- 👋 Hi, I’m Low Grav aka Devank
 - 👀 I’m interested in coding, making YouTube Videos, drawing and a lot
 - 🌱 I’m currently learning spanish, coding and many others 
 - 📫** How to reach me**
