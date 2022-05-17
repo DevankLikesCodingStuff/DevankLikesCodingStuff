@@ -10,9 +10,8 @@ Less Active : duttachoudhury.devank@gmail.com
 - 🎮** Games I like to play** :
 -  Fortnite 
 -  MineCraft
--  Roblox
 -  Valorant
+-  Apex Legends
 
 **YouTube Channels**
-- Devank The Amazing Creator : https://www.youtube.com/channel/UCeOXLW4ROJTdO380wTT-RZQ
 - Secret : (its a secret) 
